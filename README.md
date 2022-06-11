@@ -1,2 +1,0 @@
-# pedrolecio.github.io
-turrim
